@@ -1,0 +1,2 @@
+Once upon a time there was an enchanted forest, there lived 1 village and that was ruled by  4 spirits, the fire,water,airand ground spirit. 
+These spirits didn't know each other very well and always ended up fighting with eachother.
